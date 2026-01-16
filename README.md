@@ -1,4 +1,4 @@
-# Zulfiqar Ahmad Khan Personal portfolio
+# Amjid Ali Ahmad Khan Personal portfolio
 
 
 
