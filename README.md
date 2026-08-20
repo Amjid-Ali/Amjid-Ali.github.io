@@ -1,4 +1,4 @@
-# Amjid Ali Ahmad Khan Personal portfolio
+# Amjid Ali Khan Personal portfolio
 
 
 
